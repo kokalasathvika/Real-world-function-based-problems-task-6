@@ -1,1 +1,0 @@
-# Real-world-function-based-problems-task-6
